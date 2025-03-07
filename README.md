@@ -5,7 +5,7 @@
     
     
  
-[linktree](https://linktr.ee/THEH0RR0RSH0W)
+[guns.lol](https://guns.lol/cxpidjis0o)
 
 <div align="center">
 <div align="center">
